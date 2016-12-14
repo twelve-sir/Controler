@@ -1,2 +1,0 @@
-# xiaobei
-A new journey
